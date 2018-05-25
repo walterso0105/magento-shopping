@@ -1,0 +1,2 @@
+# magento-shopping
+We’re a fast growing group of awesomely talented individuals working together as a team to make the people in small businesses more successful. We are firmly united in that mission. Everything we do is in pursuit of better supporting small businesses, and each other, in our journey to power the world of mobile services. We are building a humble and supportive company that really gives a shit, and we’re having a blast doing it.
